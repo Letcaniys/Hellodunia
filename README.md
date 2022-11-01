@@ -1,7 +1,2 @@
  
-
-
-
-
-
-ig:itsme_adl
+18 y.o
