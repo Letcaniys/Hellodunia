@@ -1,6 +1,4 @@
-# HelloWorld
-pemula
-mohon bantuannya 
+ 
 
 
 
